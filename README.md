@@ -53,6 +53,10 @@ Luna realized the dark wasn't so scary when you had a friend to light the way. S
 
 ## OUTPUT:
 
+[Read Luna's Starlit Adventure!](storybook.md)
+
+
+
 ## RESULT :
 The storybook was generated about a bat who is afraid of dark for children aged 5 to 7..
 
