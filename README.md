@@ -53,7 +53,7 @@ Luna realized the dark wasn't so scary when you had a friend to light the way. S
 
 ## OUTPUT:
 
-[Read Luna's Starlit Adventure!](storybook.md)
+https://g.co/gemini/share/4edc51137140
 
 
 
