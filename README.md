@@ -62,4 +62,4 @@ The storybook was generated about a bat who is afraid of dark for children aged 
 
 All requested features bed time story style, narration, and length—were included.
 
-PDF is available for download and review.
+
