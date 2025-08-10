@@ -55,6 +55,21 @@ Luna realized the dark wasn't so scary when you had a friend to light the way. S
 
 https://g.co/gemini/share/4edc51137140
 
+<img width="1919" height="795" alt="Screenshot 2025-08-10 144222" src="https://github.com/user-attachments/assets/789bf97e-080c-4896-9b5f-5f919c7ea238" />
+<img width="1919" height="816" alt="Screenshot 2025-08-10 144239" src="https://github.com/user-attachments/assets/d3c3f1c3-6e3b-4b67-a794-1156f32d1c73" />
+<img width="1919" height="821" alt="Screenshot 2025-08-10 144257" src="https://github.com/user-attachments/assets/fa16ef72-7a59-48de-98b3-d8e8d43586da" />
+<img width="1919" height="793" alt="Screenshot 2025-08-10 144308" src="https://github.com/user-attachments/assets/e58fbaf3-edee-4008-8925-86e7bfdb554c" />
+<img width="1918" height="807" alt="Screenshot 2025-08-10 144319" src="https://github.com/user-attachments/assets/65d69908-57a1-453d-a7c8-29b430bad30d" />
+<img width="1917" height="804" alt="Screenshot 2025-08-10 144328" src="https://github.com/user-attachments/assets/2590093b-44de-439a-ad07-d0bbb9b5312d" />
+<img width="1919" height="798" alt="Screenshot 2025-08-10 144339" src="https://github.com/user-attachments/assets/0cecea62-d08d-47c8-bb8a-cd9d82e1d6c3" />
+<img width="1919" height="790" alt="Screenshot 2025-08-10 144347" src="https://github.com/user-attachments/assets/dc13f811-5539-4ce1-a1f9-74b63c793612" />
+<img width="1916" height="804" alt="Screenshot 2025-08-10 144355" src="https://github.com/user-attachments/assets/1223ec9b-2e61-43d2-a496-7f21b4d6a504" />
+<img width="1919" height="810" alt="Screenshot 2025-08-10 144405" src="https://github.com/user-attachments/assets/4c3c8916-3c63-43f2-af21-6f93d76bb19c" />
+<img width="1916" height="781" alt="Screenshot 2025-08-10 144415" src="https://github.com/user-attachments/assets/5a7a54b4-91ca-498c-be10-dc790a77ead2" />
+
+
+
+
 
 
 ## RESULT :
